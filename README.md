@@ -1,0 +1,1 @@
+https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMGMxYzY2Mjc4NzI3ZjViYmMzOTUxMTkwZmEyNDkxMTEyN2YxZmQyOSZjdD1n/6MYEJ2ZqXZGkcvner1/giphy.gif
